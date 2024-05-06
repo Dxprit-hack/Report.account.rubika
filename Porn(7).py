@@ -1,0 +1,8 @@
+"https://horror-land.blog.ir/1399/11/26/RED-ROOM"
+"https://python-forum.io/thread-2172.html"
+"https://cdn.kernel.org/pub/linux/kernel/v5.x/linux-5.4.274.tar.sign"
+"https://www.reuters.com/article/idUSKCN1NQ2OV"
+"https://www.basspro.com/c/guns"
+"https://github.com/Rubika-hacker/http-dxprit-filtering-rubika-sxs.gigfa.com-dxprit.html/blob/main/http%3A/dxprit-saleh-king99-55-39-hackers.phpnet.us/dxprit.html"
+"https://github.com/Rubika-hacker/http-dxprit-filtering-rubika-sxs.gigfa.com-dxprit.html/blob/main/8990336-14267792.jpg"
+"https://github.com/Rubika-hacker/http-dxprit-filtering-rubika-sxs.gigfa.com-dxprit.html/blob/main/2-1-300x168.jpg"
